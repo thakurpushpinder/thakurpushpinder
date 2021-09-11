@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @thakurpushpinder
+- 👀 I’m interested in Indian Army
+- 🌱 I’m currently a BSc student
